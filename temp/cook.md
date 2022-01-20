@@ -1,0 +1,1 @@
+Break noodle cake into quarters and place in a medium microwave-safe bowl. Cook in 1½ cups (375mL) of boiling water in an 850 watt microwave oven on HIGH for 2 minutes. Stir in contents of flavour sachet and enjoy! Serve with or without broth as desired.
